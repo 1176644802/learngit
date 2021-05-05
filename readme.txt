@@ -1,3 +1,2 @@
 what's yourt name 
-please tell me
-thanks
+please tell you
